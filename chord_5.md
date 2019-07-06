@@ -1,4 +1,0 @@
-# コード入門 5
-YNUCL COMICAL COMIC△7
-
-## 
