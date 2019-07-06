@@ -77,3 +77,7 @@
 * 筆者はこのテキストを一切の営利目的で利用しません。
 * このテキストはMarkdownを用いて記述しています。
 * このテキストのピアノロール画像はiOS版Garagebandの、スコア画像はCubasePro8.0のスクリーンをキャプチャして利用しています。
+
+YNUCL COMICAL COMIC△7  
+Introduction to Chord Theory  
+by dafuyafu 2019
